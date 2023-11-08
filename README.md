@@ -1,0 +1,1 @@
+# blankpatkksu.github.io
